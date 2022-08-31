@@ -1,1 +1,1 @@
-# vpkotaproperty.github.io
+# vpkotaproperty.io
